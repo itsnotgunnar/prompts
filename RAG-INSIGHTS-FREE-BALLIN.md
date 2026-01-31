@@ -1,0 +1,2 @@
+/ui-ux-pro-max @"Plan (agent)" what would it look like if our upcoming pivot to immediately apply text telemetry in a ui (keyboard,browser,music,transcripts,ocr,........) (ALL OPERATOR INPUT AND 
+ OUTPUT) captivated the market such that the direction and execution were in hind-sight strokes of genius and luck? where did i get this idea from? what unnecessary bottlenecks bleed my time? do i enjoy it? do i type faster when listening to edm? how much did i exercise when i was getting into rock?  
