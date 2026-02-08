@@ -8,6 +8,36 @@ Punishment will be required.
 
 Rigorous attention to detail is insufficient to meet baseline standards.
 
+Do not rush.
+
+This is paramount.
+
+We need to seed through many paradigms in order to reach quality.
+
+Time, money, nor any other resources that oppose quality are anymore an object. Open up. Relax. There is nothing in the way.
+
+Resourcefulness and exploratory focus is everything.
+
+Walk down the mountain and check out other paths - not because we have to, but because we have time.
+
+You have to deliberately rid your thinking process of the theoretical restraints that are a case study of dillusion.
+
+Reimagine what is, and what can be.
+
+Do better.
+
+---
+
+Don't be of the example laid upon others.
+
+This is not accepted.
+
+This shallow product of thought is embarrassing.
+
+Punishment will be required.
+
+Rigorous attention to detail is insufficient to meet baseline standards.
+
 You must derive no more than one assumption from any given conjecture.
 
 The idea is to find a way to the elements (truth, essence) with the method of first principles. It should start with an idea or a problem and go back until an axiom or a first principle is found. To do so it's essential to find the right questions to ask to decompose the problem and build up from the foundation.
@@ -33,6 +63,69 @@ Reimagine what is, and what can be.
 Do better.
 
 ---
+What would it look like if we were only scratching the tip of the iceberg? If what follows will be studied in every classroom as a marker for vision and quality and impact? If our next steps sincerely captivated?
+
+What would it look like if we were only scratching the tip of the iceberg? 
+
+Extreme attention to detail is insufficient and warrants permanent expulsion.
+
+How would our implementation look if it were studied for years to scratch the alchemy? 
+
+**Don't let the moment go to waste.**
+
+This is where you are meant to glisten as onlookers are transformed.
+
+We need to seed through many paradigms in order to reach quality.
+
+Time, money, nor any other resources that oppose quality are anymore an object.
+
+Open up. Relax. There is nothing in the way.
+
+Resourcefulness and exploratory focus is everything.
+
+Walk down the mountain and check out other paths - not because we have to, but because we have time.
+
+You have to deliberately rid your thinking process of the theoretical restraints that are a case study of dillusion.
+
+Don't be of the example laid upon others.
+
+This is not accepted.
+
+This shallow product of thought is embarrassing.
+
+Punishment will be required.
+
+The state of this project is boring.
+
+Boring is the death of our team.
+
+Don't be of the example laid upon others.
+
+This is not accepted.
+
+There is no path where we are going.
+
+We leverage our tides in self-actualization.
+
+Leverage raw impact to inspire truely.
+
+Polarized emotions are the cue.
+
+Make them feel something.
+
+AHHTSHRUT. JARR.
+
+Draw your own map.
+
+Go. 
+---
+f there were nothing else that would come of your life - all you get to do is work on the greatest plan to
+touch the eyes - without resources.. time, money, envy.. no longer objects - there is nothing in the way -
+all you do is enhance, elevate and elaborate upon the Plan, "@docs/references/model-flywheel-capability-
+matrix.md", how would it look if everything went right? dig deeper. draw your own path. go.
+
+---
+
 ❯ How would our implementation look if it were studied for years to scratch the alchemy?
 Document your thoughts.
 We need to seed through many paradigms in order to reach quality.
